@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **nrjkhttr@gmail.com**
 
-- 📄 Check out my Resume [Open PDF](https://drive.google.com/file/d/1LNZMg9dqPE5epls8kyGvWqh9X9_1U2by/view?usp=sharing)
+- 📄 Check out my Resume [Open PDF](https://drive.google.com/file/d/1NHHq1XWiNms6kMsOvds9BBU5JUJfSmFs/view?usp=sharing)
 
 - ⚡ Fun fact - **Error 404: Sleep.**
 
